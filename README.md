@@ -1,2 +1,2 @@
 微博aid s参数算法
-飞机 https://t.me/gjwutnnsml
+飞机 https://t.me/longlong1773
